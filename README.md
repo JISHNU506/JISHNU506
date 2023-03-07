@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **pjishnu506@gmail.com**
 
-- 📄 Know about my experiences [https://jishnu506.github.io/jishnu-portfolio/](https://jishnu506.github.io/jishnu-portfolio/)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
